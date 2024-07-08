@@ -1,4 +1,5 @@
 # Illustrations of Phigros 60 of 228(60/228)
+![IMG_1578](https://github.com/JamesJiang318/JamesJiang318.github.io/assets/173747124/c738dbc3-ccc8-44b6-9d01-75edfa867671)
 ![IMG_1577](https://github.com/JamesJiang318/JamesJiang318.github.io/assets/173747124/8338b8aa-da76-4eb7-b0a7-32168da3f776)
 ![IMG_1531](https://github.com/JamesJiang318/JamesJiang318.github.io/assets/173747124/cf598eb5-332a-4407-a4a7-bbecf317b290)
 ![IMG_1490](https://github.com/JamesJiang318/JamesJiang318.github.io/assets/173747124/ba86034d-924e-4c6a-8fba-eb0a2f557df9)
